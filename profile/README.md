@@ -2,4 +2,4 @@
 
 🌍 [Le site internet fluffevent.fr](https://fluffevent.fr/)
 
-💖 [Fluff Event sur Hello Asso](https://www.helloasso.com/associations/fluff-event)
+💖 [Soutenir Fluff Event](https://www.helloasso.com/associations/fluff-event/formulaires/1)
